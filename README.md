@@ -1,1 +1,1 @@
-# The Mana Exchane
+# The Mana Exchange
